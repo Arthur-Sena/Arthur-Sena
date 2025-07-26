@@ -1,6 +1,6 @@
 # Arthur Sena
  
-🧑‍💻 Atualmente, trabalho na Stefanini Brasil como Analista de Sistemas Pl.
+🧑‍💻 Atualmente, sou Engenheiro de Software II na XP Inc.
 
 📚 Estudante de Bacharelado em Ciência e Tecnologia e Bacharelado em Ciencia da Computação na UFABC.
 <br></br>
